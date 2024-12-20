@@ -1,1 +1,1 @@
-# FPSemana07
+Estava a dar aquele erro manhoso que tive na semana 3, e mesmo com a resolução que tentei há umas semanas não estou a conseguir de todo, se não houver grande stress por favor aceite o ficheiro via upload, obrigado e boas festas.
